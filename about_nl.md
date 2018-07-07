@@ -1,29 +1,28 @@
-# STUDIO DE VACANCES à louer sur les pistes des 4 Vallées à THYON2000 / Valais
+# VAKANTIE-STUDIO TE HUUR in THYON 2000, ZWITSERLAND
 
-Thyon est situé à 2100 mètres d'altitude en Valais à 20 km de Sion (lieu sans circulation automobile avec garage souterrain). Le studio no. 101, se trouve dans le bâtiment GREPPON au niveau 1.
-Le domaine skiable Les 4 Vallées (412km de pistes) est le plus grand de Suisse et est praticable de décembre à avril. Le studio se trouve à quelques mètres des pistes de ski.
-De mai à novembre de nombreux itinéraires de randonnée sur l'alpage de Thyon sont indiqués.
-Joli studio entièrement équipé pour 4 personnes, 30 m2. Idéal pour 2 adultes et 2 enfants.
-Balcon ensoleillé l'après-midi. Un canapé-lit pour deux personnes et deux lits superposés (4 duvets et 4 oreillers).
-Salle de bains avec baignoire/douche, cuisine neuve, avec frigo, four, vitrocéram.
-Four à micro-ondes/gril, set fondue, four à raclette, machine à café DOLCE GUSTO et machine à café-filtre, toaster.
-TV-sat. (écran-plat), DVD, PlayStation2 et wifi privé sont diponibles dans l'appartement (sans coût supplémentaire). Une piscine couverte se trouve à quelques mètres de l'entrée de l'immeuble.
-La location comprend : studio, armoire à ski, place de parc, literie pour les 4 duvets/oreillers.
-Dans le parking souterrain, prenez l'ascenseur jusqu'au niveau 1 et vous êtes à l'étage où se trouve l'appartement.
-Le local à ski avec armoire pour vos skis et chaussures de ski(no.101) se trouve au niveau -1.
-La place de parc privée est située dans le PARKING -2 (sous le bâtiment GREPPON).
+Thyon ligt op 2100 meter hoogte in het kanton Wallis/Valais op 20km afstand van Sion. (Veilig voor spelende kinderen, omdat er geen autoverkeer in Thyon2000 is). De studio bevindt zich in gebouw GREPPON, op de eerste verdieping, nr.101.
+Les 4 Vallées (412 km skipistes) is het grootste skigebied in Zwitserland. Gedurende het skiseizoen van december t/m april zijn de ski-liften geopend. De studio bevindt zich op een paar meter afstand van de skipiste.
+Tijdens de overige maanden van het jaar, van mei t/m november, is Thyon 2000 een heerlijk wandelgebied gelegen op de Alpenweide. Veelzijdige wandelwegen zijn direct bereikbaar vanuit het gebouw waar de studio zich bevindt. In de ongerepte natuur kunt u genieten van de schitterende flora en fauna.
+Goed ingerichte éénkamer woning van 30m2. Ideaal voor 2 volwassenen en 2 kinderen.
+Zonnig balkon vanaf 12.00 uur 's middags. Eén bedbank voor 2 personen en twee stapelbedden (4 dekbedden en 4 kussens). Het bedlinnen is bij de prijs inbegrepen evenals het keukenlinnen.
+Badkamer met bad/douche, Nieuwe keuken met koelkast, combi-oven, kookplaat.
+Kaasfondue-set, Raclette stel, DOLCE GUSTO Koffiezetapparaat + filterkoffiemachine, Toaster, Magnetron met oven/grill funktie, TV-sat.flatscreen, DVD, PlayStation 2 en privé wifi zijn in het appartement beschikbaar.
+Er is een privé parkeerplaats in de parkeergarage (onder het gebouw), deze is bij de prijs inbegrepen.
+Het overdekte zwembad is op enkele meters te bereiken (naast het gebouw van de studio).
+Er is een verwarmd skilokaal, met skikast beschikbaar in de kelder van het gebouw, welke bereikbaar met een lift.
+De huurder dient zelf te zorgen voor de eindschoonmaak.
 
-## Possibilités de location
+## TARIEF
 
-### De mai à novembre
+### Van mei t/m november
 
-- CHF 300 par semaine
-- CHF 100 par weekend
+- Per week CHF 300
+- Per weekend CHF 100
 
-### De décembre à avril
+### Van december t/m april
 
-- CHF 650 par semaine
-- CHF 250 par weekend de vendredi à dimanche soir
-- Du lundi au vendredi: CHF 450
+- Per week CHF 650
+- Per weekend CHF 250 van vrijdag t/m zondag
+- Van maandag tot vrijdag: CHF 450
 
-## + Taxes de séjour: CHF 2,50 par adulte, CHF 1,25 par enfant
+## + Toeristenbelasting : CHF 2,50/volwassene CHF 1,25/kind

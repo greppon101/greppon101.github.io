@@ -1,29 +1,29 @@
-# STUDIO DE VACANCES à louer sur les pistes des 4 Vallées à THYON2000 / Valais
+# APARTMENT TO RENT, THYON 2000, SWITZERLAND
 
-Thyon est situé à 2100 mètres d'altitude en Valais à 20 km de Sion (lieu sans circulation automobile avec garage souterrain). Le studio no. 101, se trouve dans le bâtiment GREPPON au niveau 1.
-Le domaine skiable Les 4 Vallées (412km de pistes) est le plus grand de Suisse et est praticable de décembre à avril. Le studio se trouve à quelques mètres des pistes de ski.
-De mai à novembre de nombreux itinéraires de randonnée sur l'alpage de Thyon sont indiqués.
-Joli studio entièrement équipé pour 4 personnes, 30 m2. Idéal pour 2 adultes et 2 enfants.
-Balcon ensoleillé l'après-midi. Un canapé-lit pour deux personnes et deux lits superposés (4 duvets et 4 oreillers).
-Salle de bains avec baignoire/douche, cuisine neuve, avec frigo, four, vitrocéram.
-Four à micro-ondes/gril, set fondue, four à raclette, machine à café DOLCE GUSTO et machine à café-filtre, toaster.
-TV-sat. (écran-plat), DVD, PlayStation2 et wifi privé sont diponibles dans l'appartement (sans coût supplémentaire). Une piscine couverte se trouve à quelques mètres de l'entrée de l'immeuble.
-La location comprend : studio, armoire à ski, place de parc, literie pour les 4 duvets/oreillers.
-Dans le parking souterrain, prenez l'ascenseur jusqu'au niveau 1 et vous êtes à l'étage où se trouve l'appartement.
-Le local à ski avec armoire pour vos skis et chaussures de ski(no.101) se trouve au niveau -1.
-La place de parc privée est située dans le PARKING -2 (sous le bâtiment GREPPON).
+The village of Thyon 2000 is situated at 2100m altiutude in the Swiss alps. The distance to Sion is about 20 km.
+The ski resort "Les 4 Vallées" (with 412km of ski tracks) is the largest ski resort in Switzerland. The ski season lasts from december to april.
+During the other months of the year, from May until November, hiking is very pleasant on the many roads that are available to you. The landscape and the fauna and flora are beautiful to see.
+The apartment is very modern and has a surface of 30m2. Perfect for 2 adults and 2 children.
+In the afternoon the balcony is on the sunny side. A bedsofa for 2 persons and two high beds (with 4 quilts en 4 pillows)
+Bathroom with shower and bath, new kitchen with freezer, combi-oven, electrical cooktop.
+Fondue-set, Raclette tool, DOLCE GUSTO coffeemaker + filter coffee machine. Toaster, Microwave, TV-sat.flatscreen, DVD, PlayStation 2. There is also a private wifi network included with the rental.
+The indoor swimming pool is near the building of the apartment.
+The location contains : the apartment, the ski storage room (see below), the parking space and all you need to sleep (4 quilts, 4 pillows and the cases that go with them)
+Our apartment is apartment "Greppon 101", situated in building GREPPON, on the first floor.
+In the same building as the apartment on floor -1, you will find the skis storage room.
+Our privat parking space is situated in Parking -2 under the building. This is included in our price.
 
-## Possibilités de location
+## Rental offers
 
-### De mai à novembre
+### From May until November
 
-- CHF 300 par semaine
-- CHF 100 par weekend
+- One week: CHF 300.-
+- One weekend CHF 100.-
 
-### De décembre à avril
+### From December until April: (ski period)
 
-- CHF 650 par semaine
-- CHF 250 par weekend de vendredi à dimanche soir
-- Du lundi au vendredi: CHF 450
+- One week : CHF 650.-
+- One weekend CHF 250,- from Friday until Sunday
+- From Monday until Friday: CHF 450.-
 
-## + Taxes de séjour: CHF 2,50 par adulte, CHF 1,25 par enfant
+## + Tourist tax: CHF 2,50/ adult CHF 1,25/kid
