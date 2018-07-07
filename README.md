@@ -4,7 +4,7 @@
 
 ## Nous contacter / Contact us / Ons contacteren
 
-- mail: lachat.ka.re@bluewin.ch
+- mail: [lachat.ka.re@bluewin.ch](lachat.ka.re@bluewin.ch)
 
 ## Contenus du site / Contents of the site / Wat is op de site
 
@@ -21,5 +21,5 @@
 
 - [Holiday house "Het Loo", Netherlands](http://www.hetloo-spankeren.nl/)
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM3ODI2NjkwOF19
+eyJoaXN0b3J5IjpbLTkxOTgxNzE1MCwxMzc4MjY2OTA4XX0=
 -->
