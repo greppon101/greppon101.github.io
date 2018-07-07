@@ -1,3 +1,5 @@
+[Homepagina](README.md)
+
 # VAKANTIE-STUDIO TE HUUR in THYON 2000, ZWITSERLAND
 
 Thyon ligt op 2100 meter hoogte in het kanton Wallis/Valais op 20km afstand van Sion. (Veilig voor spelende kinderen, omdat er geen autoverkeer in Thyon2000 is). De studio bevindt zich in gebouw GREPPON, op de eerste verdieping, nr.101.

@@ -1,3 +1,5 @@
+[Home](README.md)
+
 # APARTMENT TO RENT, THYON 2000, SWITZERLAND
 
 The village of Thyon 2000 is situated at 2100m altiutude in the Swiss alps. The distance to Sion is about 20 km.
