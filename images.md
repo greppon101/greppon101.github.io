@@ -1,4 +1,4 @@
-# Quelques photos de Thyon et de l'appartement
+# Photos / Pictures / Fotos
 
 ![3.jpg](../images/3.jpg)
 ![7.jpg](../images/7.jpg)
