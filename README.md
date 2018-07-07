@@ -1,3 +1,5 @@
+<link rel="shortcut icon" type="image/png" href="/favicon.png">
+
 # Bienvenue / Welcome / Welkom
 
 ## Nous contacter / Contact us / Ons contacteren
