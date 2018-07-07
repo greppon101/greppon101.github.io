@@ -20,3 +20,6 @@
 ## Sites amis / Friends sites / Vriende sites
 
 - [Holiday house "Het Loo", Netherlands](http://www.hetloo-spankeren.nl/)
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbMTM3ODI2NjkwOF19
+-->
