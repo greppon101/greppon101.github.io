@@ -29,3 +29,6 @@ Our privat parking space is situated in Parking -2 under the building. This is i
 - From Monday until Friday: CHF 450.-
 
 ## + Tourist tax: CHF 2,50/ adult CHF 1,25/kid
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTE4MDg4ODAwOTZdfQ==
+-->
