@@ -1,6 +1,6 @@
 [Accueil](README.md)
 
-# STUDIO DE VACANCES à louer sur les pistes des 4 Vallées à THYON2000 / Valais
+# STUDIO DE VACANCES à louer sur les pistes des 4 Vallées à THYON 2000 / Valais
 
 Thyon est situé à 2100 mètres d'altitude en Valais à 20 km de Sion (lieu sans circulation automobile avec garage souterrain). Le studio no. 101, se trouve dans le bâtiment GREPPON au niveau 1.
 Le domaine skiable Les 4 Vallées (412km de pistes) est le plus grand de Suisse et est praticable de décembre à avril. Le studio se trouve à quelques mètres des pistes de ski.
@@ -30,5 +30,5 @@ La place de parc privée est située dans le PARKING -2 (sous le bâtiment GREPP
 
 ## + Taxes de séjour: CHF 2,50 par adulte, CHF 1,25 par enfant
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1NDU0MTk3NTZdfQ==
+eyJoaXN0b3J5IjpbLTE4NTM4OTUwNzZdfQ==
 -->
