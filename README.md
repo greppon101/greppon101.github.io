@@ -2,7 +2,7 @@
 
 # Bienvenue / Welcome / Welkom
 
-## Nous contacter / Contact us / Ons contacteren
+## Nous contacter / Contact us / Kontakt opnemen
 
 - mail: [lachat.ka.re@bluewin.ch](lachat.ka.re@bluewin.ch)
 
@@ -21,5 +21,5 @@
 
 - [Holiday house "Het Loo", Netherlands](http://www.hetloo-spankeren.nl/)
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODQxODQ4MDY2XX0=
+eyJoaXN0b3J5IjpbMTk4MDUzNDAwNiw4NDE4NDgwNjZdfQ==
 -->
