@@ -29,5 +29,5 @@ De huurder dient zelf te zorgen voor de eindschoonmaak.
 
 ## + Toeristenbelasting : CHF 2,50/volwassene CHF 1,25/kind
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM1NDU4Mzg1NF19
+eyJoaXN0b3J5IjpbLTE1NTc0MzE4MDAsLTM1NDU4Mzg1NF19
 -->
