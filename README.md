@@ -17,6 +17,9 @@
 ![Thyon en hiver](images/thyon_hiver.jpg)
 ![Thyon en été](images/thyon_ete.jpg)
 
-## Sites amis / Friends sites / Vriende sites
+## Sites amis / Friends sites / Vrienden sites
 
 - [Holiday house "Het Loo", Netherlands](http://www.hetloo-spankeren.nl/)
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbODQxODQ4MDY2XX0=
+-->
