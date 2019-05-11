@@ -19,7 +19,6 @@ De huurder dient zelf te zorgen voor de eindschoonmaak.
 ### Van mei t/m november
 
 - Per week CHF 300
-- Per weekend CHF 100
 
 ### Van december t/m april
 

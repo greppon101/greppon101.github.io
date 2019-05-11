@@ -20,7 +20,6 @@ Our privat parking space is situated in Parking -2 under the building. This is i
 ### From May until November
 
 - One week: CHF 300.-
-- One weekend CHF 100.-
 
 ### From December until April: (ski period)
 

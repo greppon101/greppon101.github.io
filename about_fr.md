@@ -20,7 +20,6 @@ La place de parc privée est située dans le PARKING -2 (sous le bâtiment GREPP
 ### De mai à novembre
 
 - CHF 300 par semaine
-- CHF 100 par weekend
 
 ### De décembre à avril
 
