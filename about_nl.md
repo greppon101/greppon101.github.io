@@ -8,8 +8,8 @@ Tijdens de overige maanden van het jaar, van mei t/m november, is Thyon 2000 een
 De studio is een goed ingerichte éénkamer woning van 30m2. Ideaal voor 2 volwassenen en 2 kinderen.
 Zonnig balkon vanaf 12.00 uur 's middags. Eén bedbank voor 2 personen en twee stapelbedden (4 dekbedden en 4 kussens). Het bedlinnen is bij de prijs inbegrepen evenals het keukenlinnen.
 Badkamer met bad/douche, Nieuwe keuken met koelkast, combi-oven, kookplaat.
-Kaasfondue-set, Raclette stel, Koffiezetapparaat DOLCE GUSTO Koffie + koffie/filtermachine, Toaster, Magnetron met oven/grill funktie, TV-sat.flatscreen, DVD, PlayStation 2 en privé wifi zijn in het appartement beschikbaar.
-Er is een privé parkeerplaats in de parkeergarage (onder het gebouw), deze is bij de prijs inbegrepen.
+Kaasfondue-set, Raclette stel, Koffiezetapparaat DOLCE GUSTO + koffie/filtermachine, Toaster, Magnetron met oven/grill funktie, TV-sat.flatscreen, PlayStation 2 en Privé-WIFI zijn in het appartement beschikbaar.
+Er is een Privé parkeerplaats in de parkeergarage (onder het gebouw), deze is bij de prijs inbegrepen.
 Het overdekte zwembad is op enkele meters te bereiken (naast het gebouw van de studio).
 Er is een verwarmd skilokaal, met skikast beschikbaar in de kelder van het gebouw, welke bereikbaar met een lift.
 De huurder dient zelf te zorgen voor de eindschoonmaak.
@@ -28,6 +28,6 @@ De huurder dient zelf te zorgen voor de eindschoonmaak.
 
 ## + Toeristenbelasting : CHF 2,50/volwassene CHF 1,25/kind
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ5NDQ5NzI0NiwtMzkxMTIwMDY3LC0xMz
+eyJoaXN0b3J5IjpbMTEyOTgwMjk3MywtMzkxMTIwMDY3LC0xMz
 A1MTA2NDksLTE1NTc0MzE4MDAsLTM1NDU4Mzg1NF19
 -->
