@@ -11,7 +11,7 @@ Badkamer met bad/douche, Nieuwe keuken met koelkast, combi-oven, kookplaat.
 Kaasfondue-set, Raclette stel, Koffiezetapparaat DOLCE GUSTO + koffie/filtermachine, Toaster, Magnetron met oven/grill funktie, TV-sat.flatscreen, PlayStation 2 en Privé-WIFI zijn in het appartement beschikbaar.
 Er is een Privé parkeerplaats in de parkeergarage (onder het gebouw), deze is bij de prijs inbegrepen.
 Het overdekte zwembad is op enkele meters te bereiken (naast het gebouw van de studio).
-Er is een verwarmd skilokaal, met skikast beschikbaar in de kelder van het gebouw, welke bereikbaar met een lift.
+Er is een verwarmd skilokaal, met skikast beschikbaar in de  kelder van het gebouw, welke bereikbaar met een lift.
 De huurder dient zelf te zorgen voor de eindschoonmaak.
 
 ## TARIEF
@@ -28,6 +28,6 @@ De huurder dient zelf te zorgen voor de eindschoonmaak.
 
 ## + Toeristenbelasting : CHF 2,50/volwassene CHF 1,25/kind
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEyOTgwMjk3MywtMzkxMTIwMDY3LC0xMz
-A1MTA2NDksLTE1NTc0MzE4MDAsLTM1NDU4Mzg1NF19
+eyJoaXN0b3J5IjpbMzUyNDI0NDI3LC0zOTExMjAwNjcsLTEzMD
+UxMDY0OSwtMTU1NzQzMTgwMCwtMzU0NTgzODU0XX0=
 -->
