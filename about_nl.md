@@ -13,6 +13,7 @@ Er is een Privé parkeerplaats in de parkeergarage (onder het gebouw), deze is b
 Het overdekte zwembad is op enkele meters te bereiken (naast het gebouw van de studio).
 Er is een verwarmd skilokaal, met skikast beschikbaar in de  kelder van het gebouw, welke bereikbaar met een lift.
 De huurder dient zelf te zorgen voor de eindschoonmaak.
+(hiermee blijft de huurprijs van de studio attraktief)
 
 ## TARIEF
 
@@ -28,6 +29,6 @@ De huurder dient zelf te zorgen voor de eindschoonmaak.
 
 ## + Toeristenbelasting : CHF 2,50/volwassene CHF 1,25/kind
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzUyNDI0NDI3LC0zOTExMjAwNjcsLTEzMD
-UxMDY0OSwtMTU1NzQzMTgwMCwtMzU0NTgzODU0XX0=
+eyJoaXN0b3J5IjpbMTMzODUyNDM1NiwtMzkxMTIwMDY3LC0xMz
+A1MTA2NDksLTE1NTc0MzE4MDAsLTM1NDU4Mzg1NF19
 -->
