@@ -27,9 +27,7 @@ De huurder dient zelf te zorgen voor de eindschoonmaak.
 - Van maandag tot vrijdag: CHF 450
 
 ## + Toeristenbelasting : CHF 2,50/volwassene CHF 1,25/kind
-
-TEST
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzMDUxMDY0OSwtMTU1NzQzMTgwMCwtMz
-U0NTgzODU0XX0=
+eyJoaXN0b3J5IjpbLTM5MTEyMDA2NywtMTMwNTEwNjQ5LC0xNT
+U3NDMxODAwLC0zNTQ1ODM4NTRdfQ==
 -->
