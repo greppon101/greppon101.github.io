@@ -6,6 +6,7 @@ Thyon ligt op **2100** meter hoogte in het kanton Wallis/Valais De afstand tot d
 Les 4 Vallées (412 km skipistes) is het grootste skigebied in Zwitserland. De ski-liften zijn geopend gedurende het skiseizoen van december t/m april. 
 Tijdens de overige maanden van het jaar, van mei t/m november, is Thyon 2000 een heerlijk wandelgebied gelegen op de Alpenweide. Veelzijdige wandelroutes zijn direct bereikbaar vanuit het gebouw waar de studio zich bevindt. In de ongerepte natuur kunt u genieten van de schitterende flora en fauna.
 De studio is een goed ingerichte éénkamer woning van 30m2. Ideaal voor 2 volwassenen en 2 kinderen.
+En van alle gemakken voorzien!
 Zonnig balkon vanaf 12.00 uur 's middags. Eén bedbank voor 2 personen en twee stapelbedden (4 dekbedden en 4 kussens). Het bedlinnen is bij de prijs inbegrepen evenals het keukenlinnen.
 Badkamer met bad/douche, Nieuwe keuken met koelkast, combi-oven, kookplaat.
 Kaasfondue-set, Raclette stel, Koffiezetapparaat DOLCE GUSTO + koffie/filtermachine, Toaster, Magnetron met oven/grill funktie, TV-sat.flatscreen, PlayStation 2 en Privé-WIFI zijn in het appartement beschikbaar.
@@ -29,7 +30,7 @@ De huurder dient zelf te zorgen voor de eindschoonmaak.
 
 ## + Toeristenbelasting : CHF 2,50/volwassene CHF 1,25/kind
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3NTY2OTU3NzcsMTMzODUyNDM1NiwtMz
-kxMTIwMDY3LC0xMzA1MTA2NDksLTE1NTc0MzE4MDAsLTM1NDU4
-Mzg1NF19
+eyJoaXN0b3J5IjpbMTUyNTU4MjQzMywxMzM4NTI0MzU2LC0zOT
+ExMjAwNjcsLTEzMDUxMDY0OSwtMTU1NzQzMTgwMCwtMzU0NTgz
+ODU0XX0=
 -->
