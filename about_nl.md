@@ -2,7 +2,7 @@
 
 # VAKANTIE-STUDIO TE HUUR in THYON 2000, ZWITSERLAND
 
-Thyon ligt op **2100** meter hoogte in het kanton Wallis/Valais, op 20km afstand van Sion. (veilig voor spelende kinderen, daar geen autoverkeer op binnenplaats in Thyon2000). De studio bevindt zich in gebouw GREPPON, op de eerste verdieping, nr.101. En is gelegen op een paar meter afstand van de skipisten.
+Thyon ligt op **2100** meter hoogte in het kanton Wallis/Valais De afstand tot de stad Sion is 20km. Veilig voor spelende kinderen, er is geen autoverkeer op binnenplaats in Thyon2000). De studio bevindt zich in gebouw GREPPON, op de eerste verdieping, nr.101. En is gelegen op een paar meter afstand van de skipisten.
 Les 4 Vallées (412 km skipistes) is het grootste skigebied in Zwitserland. De ski-liften zijn geopend gedurende het skiseizoen van december t/m april. 
 Tijdens de overige maanden van het jaar, van mei t/m november, is Thyon 2000 een heerlijk wandelgebied gelegen op de Alpenweide. Veelzijdige wandelroutes zijn direct bereikbaar vanuit het gebouw waar de studio zich bevindt. In de ongerepte natuur kunt u genieten van de schitterende flora en fauna.
 De studio is een goed ingerichte éénkamer woning van 30m2. Ideaal voor 2 volwassenen en 2 kinderen.
@@ -29,6 +29,7 @@ De huurder dient zelf te zorgen voor de eindschoonmaak.
 
 ## + Toeristenbelasting : CHF 2,50/volwassene CHF 1,25/kind
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMzODUyNDM1NiwtMzkxMTIwMDY3LC0xMz
-A1MTA2NDksLTE1NTc0MzE4MDAsLTM1NDU4Mzg1NF19
+eyJoaXN0b3J5IjpbLTEzNzY3ODc4MTAsMTMzODUyNDM1NiwtMz
+kxMTIwMDY3LC0xMzA1MTA2NDksLTE1NTc0MzE4MDAsLTM1NDU4
+Mzg1NF19
 -->
