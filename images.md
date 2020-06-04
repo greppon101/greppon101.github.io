@@ -1,6 +1,6 @@
 [Accueil / Home / Homepagina](README.md)
 
-# Photos / Pictures / Fotos
+# Photos / Pictures / Foto's
 
 ![5.jpg](../images/5.jpg)
 ![7.jpg](../images/7.jpg)
@@ -13,3 +13,6 @@
 ![12.jpg](../images/12.jpg)
 ![4.jpg](../images/4.jpg)
 ![3.jpg](../images/3.jpg)
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbMTA2ODc2NzczN119
+-->
