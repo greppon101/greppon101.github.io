@@ -24,10 +24,11 @@ La place de parc privée est située dans le PARKING -2 (sous le bâtiment GREPP
 ### De décembre à avril
 
 - CHF 650 par semaine
-- CHF 250 par weekend de vendredi à dimanche soir
-- Du lundi au vendredi: CHF 450
+- CHF 250 par weekend de vendredi à dimanche soir.
+-  CHF 450 du lundi au vendredi.
+- La semaine de Noël  et  la semaine de Nouvel-An CHF 800
 
 ## + Taxes de séjour: CHF 2,50 par adulte, CHF 1,25 par enfant
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2Njc1OTIwMzZdfQ==
+eyJoaXN0b3J5IjpbMTQ0NjUzMjMxMCwtMTY2NzU5MjAzNl19
 -->
