@@ -28,11 +28,11 @@ We spreken Frans en Nederlands!
 - Per week CHF 650
 - Per weekend CHF 250 van vrijdag t/m zondag
 - Van maandag tot vrijdag: CHF 450
-- Week van Kerst en Week va
+- Week van Kerst en Week van Jaarwisseling CHF 800
 
 ## + Toeristenbelasting : CHF 2,50/volwassene CHF 1,25/kind
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3NTQ2NjEyOTAsLTE0Njc2MTczNTMsMT
+eyJoaXN0b3J5IjpbLTExNDU1NTg2MDQsLTE0Njc2MTczNTMsMT
 UyNTU4MjQzMywxMzM4NTI0MzU2LC0zOTExMjAwNjcsLTEzMDUx
 MDY0OSwtMTU1NzQzMTgwMCwtMzU0NTgzODU0XX0=
 -->
