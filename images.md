@@ -3,7 +3,6 @@
 # Photos / Pictures / Foto's
 
 ![5.jpg](../images/5.jpg)
-![7.jpg](../images/7.jpg)
 ![thyon_hiver.jpg](../images/thyon_hiver.jpg)
 ![2.jpg](../images/2.jpg)
 ![9.jpg](../images/9.jpg)
