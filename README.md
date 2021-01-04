@@ -19,9 +19,10 @@
 
 [Prefer summer holidays ?](https://www.facebook.com/remy.lachat01/about/?ref=page_internal)
 Envie de passer vos vacances en Provence?
-(https://www.facebook.com/remy.lachat01/about/?ref=page_internal)
 La Provence, een ideale bestemming voor uw zomervakantie.
 (https://www.facebook.com/remy.lachat01/about/?ref=page_internal)
+La Provence, een i
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTczODI2ODE0LC0xNzQ1MTc0ODI4XX0=
+eyJoaXN0b3J5IjpbMTg3NTAzMTAzLDE3MzgyNjgxNCwtMTc0NT
+E3NDgyOF19
 -->
