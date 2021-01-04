@@ -18,7 +18,9 @@
 ![Thyon en été](images/thyon_ete.jpg)
 
 [Prefer summer holidays ?](https://www.facebook.com/remy.lachat01/about/?ref=page_internal)
-Envie de passer vos vacances en Prov
+Envie de passer vos vacances en Provence?
+(https://www.facebook.com/remy.lachat01/about/?ref=page_internal)
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU4NzQ0ODgyMiwtMTc0NTE3NDgyOF19
+eyJoaXN0b3J5IjpbMTcwMjMxMTM3LC0xNzQ1MTc0ODI4XX0=
 -->
