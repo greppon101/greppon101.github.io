@@ -17,3 +17,7 @@
 ![Thyon en hiver](images/thyon_hiver.jpg)
 ![Thyon en été](images/thyon_ete.jpg)
 
+Prefer summer vacations ? [](https://www.facebook.com/remy.lachat01/about/?ref=page_internal)
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbMTA1Mjg5MjgyN119
+-->
