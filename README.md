@@ -18,11 +18,11 @@
 ![Thyon en été](images/thyon_ete.jpg)
 
 [Prefer summer holidays ?](https://www.facebook.com/remy.lachat01/about/?ref=page_internal)
-[Envie de passer vos vacances en Provence?
-La Provence, een ideale bestemming voor uw zomervakantie.
+[Envie de passer vos vacances en Provence?]
+[La Provence, een ideale bestemming voor uw zomervakantie.]
 (https://www.facebook.com/remy.lachat01/about/?ref=page_internal)
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwOTA3Nzk4OTAsMTczODI2ODE0LC0xNz
+eyJoaXN0b3J5IjpbLTE0ODYxMTQwMDUsMTczODI2ODE0LC0xNz
 Q1MTc0ODI4XX0=
 -->
