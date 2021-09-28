@@ -20,16 +20,16 @@ Our privat parking space is situated in Parking -2 under the building. This is i
 
 ### From May until November
 
-- One week: CHF 300.-
+- One week: CHF 350.-
 
 ### From December until April: (ski period)
 
 - One week : CHF 650.-
 - One weekend CHF 250,- from Friday until Sunday
 - From Monday until Friday: CHF 450.-
-- Christmas-week and January 1st-week CHF 800,-
-## + Tourist tax: CHF 2,50/ adult CHF 1,25/kid
+- Christmas-week and January 1st-week CHF 850,-
+## + Tourist tax: CHF 3,20/ adult CHF 1,60/kid
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjQyMzc3NTIwLC0xMDEwNzExMzkwLC0yMD
-A0NzYwNDQsLTE4MDg4ODAwOTZdfQ==
+eyJoaXN0b3J5IjpbMTY3NDgyMjgzOSwtMTAxMDcxMTM5MCwtMj
+AwNDc2MDQ0LC0xODA4ODgwMDk2XX0=
 -->
