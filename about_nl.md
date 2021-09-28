@@ -9,7 +9,7 @@ De studio is een goed ingerichte éénkamer woning van 30m2. Ideaal voor 2 volwa
 En van alle gemakken voorzien!
 Zonnig balkon vanaf 12.00 uur 's middags. Eén bedbank voor 2 personen en twee stapelbedden (4 dekbedden en 4 kussens). Het bedlinnen is bij de prijs inbegrepen evenals het keukenlinnen.
 Badkamer met bad/douche, Nieuwe keuken met koelkast, combi-oven, kookplaat.
-Kaasfondue-set, Raclette stel, Koffiezetapparaat DOLCE GUSTO + koffie/filtermachine, Toaster, Magnetron met oven/grill funktie, TV-sat.flatscreen, PlayStation 2 en Privé-WIFI zijn in het appartement beschikbaar.
+Kaasfondue-set, Raclette stel, Koffiezetapparaat DOLCE GUSTO + koffie/filtermachine, Toaster, Magnetron met oven/grill funktie, TV-sat.flatscreen,  Privé-WIFI zijn in het appartement beschikbaar.
 Er is een Privé parkeerplaats in de parkeergarage (onder het gebouw), deze is bij de prijs inbegrepen.
 Het overdekte zwembad is op enkele meters te bereiken (naast het gebouw van de studio).
 Er is een verwarmd skilokaal, met skikast beschikbaar in de  kelder van het gebouw, welke bereikbaar met een lift.
@@ -17,22 +17,23 @@ De huurder dient zelf te zorgen voor de eindschoonmaak.
 (hiermee blijft de huurprijs van de studio attraktief)
 We spreken Frans en Nederlands!  
 
-## TARIEF
+## TARIEVEN
 
 ### Van mei t/m november
 
-- Per week CHF 300
+- Per week CHF 350
 
 ### Van december t/m april
 
 - Per week CHF 650
 - Per weekend CHF 250 van vrijdag t/m zondag
 - Van maandag tot vrijdag: CHF 450
-- Week van Kerst en Week van Jaarwisseling CHF 800
+- Week van Kerst en Week van Jaarwisseling CHF 850
 
-## + Toeristenbelasting : CHF 2,50/volwassene CHF 1,25/kind
+## + Toeristenbelasting : CHF 3,60/volwassene CHF 1,60/kind
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNDU1NTg2MDQsLTE0Njc2MTczNTMsMT
-UyNTU4MjQzMywxMzM4NTI0MzU2LC0zOTExMjAwNjcsLTEzMDUx
-MDY0OSwtMTU1NzQzMTgwMCwtMzU0NTgzODU0XX0=
+eyJoaXN0b3J5IjpbLTE1NjIzMTU3NDMsLTExNDU1NTg2MDQsLT
+E0Njc2MTczNTMsMTUyNTU4MjQzMywxMzM4NTI0MzU2LC0zOTEx
+MjAwNjcsLTEzMDUxMDY0OSwtMTU1NzQzMTgwMCwtMzU0NTgzOD
+U0XX0=
 -->
