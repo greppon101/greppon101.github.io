@@ -6,7 +6,8 @@ Thyon est situé à **2100** mètres d'altitude en Valais à 20 km de Sion (lieu
 Le domaine skiable Les 4 Vallées (412km de pistes) est le plus grand de Suisse et est praticable de décembre à avril. Le studio se trouve à quelques mètres des pistes de ski.
 De mai à novembre de nombreux itinéraires de randonnée sur l'alpage de Thyon sont indiqués.
 Joli studio entièrement équipé pour 4 personnes, 30 m2. Idéal pour 2 adultes et 2 enfants.
-Balcon ensoleillé l'après-midi. Un canapé-lit pour deux personnes et deux lits superposés (4 duvets et 4 oreillers).
+Balcon ensoleillé l'après-midi. Un canapé-lit pour deux personnes et deux lits superposés 
+(4 duvets et 4 oreillers).
 Salle de bains avec baignoire/douche, cuisine neuve avec frigo, four, vitrocéram.
 Four à micro-ondes/gril, set fondue, four à raclette, machine à café DOLCE GUSTO et machine à café-filtre, toaster.
 TV-sat. (écran-plat) et WIFI privé sont disponible dans l'appartement (sans coût supplémentaire). Une piscine couverte se trouve à quelques mètres de l'entrée de l'immeuble.
@@ -30,6 +31,6 @@ La place de parc privée est située dans le PARKING -2 (sous le bâtiment GREPP
 
 ## + Taxes de séjour: CHF 3,20 par adulte, CHF 1,60 par enfant
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEwNTc3MjE4NSwyMjg4ODIyOTUsLTE2Nj
-c1OTIwMzZdfQ==
+eyJoaXN0b3J5IjpbLTExODkwNDE0MjksMjI4ODgyMjk1LC0xNj
+Y3NTkyMDM2XX0=
 -->
