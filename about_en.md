@@ -9,7 +9,7 @@ The apartment is very modern and has a surface of 30m2. Perfect for 2 adults and
 In the afternoon the balcony is on the sunny side. A bedsofa for 2 persons and two high beds (with 4 quilts en 4 pillows)
 Bathroom with shower and bath, new kitchen with freezer, combi-oven, electrical cooktop.
 Fondue-set, Raclette tool, DOLCE GUSTO coffeemaker + filter coffee machine. Toaster, Microwave, TV-sat.flatscreen.
- There is also a private wifi network included with the rental.
+ There is also a private WIFI network included with the rental.
 The indoor swimming pool is near the building of the apartment.
 The location contains : the apartment, the ski storage room (see below), the parking space and all you need to sleep (4 quilts, 4 pillows and the cases that go with them)
 Our apartment is apartment "Greppon 101", situated in building GREPPON, on the first floor.
@@ -30,6 +30,6 @@ Our privat parking space is situated in Parking -2 under the building. This is i
 - Christmas-week and January 1st-week CHF 800,-
 ## + Tourist tax: CHF 2,50/ adult CHF 1,25/kid
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODEwNTExMTUyLC0xMDEwNzExMzkwLC0yMD
+eyJoaXN0b3J5IjpbMjQyMzc3NTIwLC0xMDEwNzExMzkwLC0yMD
 A0NzYwNDQsLTE4MDg4ODAwOTZdfQ==
 -->
