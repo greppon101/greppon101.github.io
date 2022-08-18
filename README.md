@@ -9,8 +9,8 @@
 ## Contenus du site / Contents of the site / Wat is op de site
 
 - [FR: Plus d'information](about_fr.md)
-<!-- - [EN: About](about_en.md)
-- [NL: Meer informatie](about_nl.md) --> 
+<!-- - [EN: About](about_en.md) -->
+<!-- - [NL: Meer informatie](about_nl.md)  -->
 <!-- // Versions en anglais et néerlandais supprimées (temporairement? 2022-08-18) -->
 <!-- - [Disponibilité / Availability / Beschikbaarheid](agenda.md) -->
 <!-- //Disponibilités temporairement désactivé, semble ne plus être utilisé -->
