@@ -40,7 +40,7 @@ La place de parc privée est située dans le PARKING au niveau-2.
 
 ### De décembre à avril
 
-- CHF 700 par semaine.
+- CHF 750 par semaine.
 - CHF 250 par weekend de vendredi à dimanche fin d'après-midi.
 - CHF 450 du lundi au vendredi.
 - La semaine de Noël et la semaine de Nouvel-An: CHF 850.
